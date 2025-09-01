@@ -24,12 +24,12 @@ Plaintiff Jeremiah-Matthew Anderson, appearing pro se, respectfully moves this C
 Defendant claims it "discovered" Plaintiff's Second Amended Complaint on August 11, 2025, and filed removal within 30 days. This is a blatant misrepresentation designed to circumvent the removal deadline.
 
 **The undisputed facts:**
-- Defendant was properly served through the Volusia County Sheriff's Department as ordered by the Court
-- Defendant had actual and constructive notice of all proceedings
+- Defendant was properly served through the LA County Sheriff's Department as ordered by the 7th Circuit Court
+- Defendant had actual and constructive notice of all proceedings, inlcuding multiple seperate occasions inlcuding certified mail in additon to the LASD serving them legally. 
 - Defendant deliberately ignored court proceedings and failed to appear at hearings
 - Only after losing by default judgment did Defendant suddenly "discover" the case
 
-**This calculated ignorance cannot reset the removal clock.** Defendant's attempt to manipulate federal jurisdiction through willful blindness is procedurally improper and made in bad faith.
+**This calculated ignorance cannot reset the removal clock.** Defendant's attempt to manipulate federal jurisdiction through willful blindness is procedurally improper and made in bad faith. Why would they possibly want to move towards the jurisdiciton that has more authority directly over their now apparent interstate fraudulent activiites. I am not here to assit in righting all their wrongs. I am simply here to be made whole after the theft of my private property. To say this is a "mistaken repo" or anything else is a direct insult and further attack on myself and my rights. 
 
 **2. STRATEGIC FORUM SHOPPING TO AVOID ACCOUNTABILITY**
 
